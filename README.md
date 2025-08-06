@@ -78,7 +78,7 @@ Transparency and community trust are core values — every line of code is open 
 
 ---
 
-![SoftwaresForAll Banner](https://yourdomain.com/path-to-your-banner-image.png)  
+![SoftwaresForAll Banner](20250806_022817.jpg)  
 
 ---
 
